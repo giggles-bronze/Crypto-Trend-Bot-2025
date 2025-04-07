@@ -1,0 +1,1 @@
+# Crypto-Trend-Bot-2025
